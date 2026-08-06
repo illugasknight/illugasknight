@@ -1,6 +1,6 @@
 ## Hi! I usually don't talk so please don't expect me to :) I encourage c+h but I do have boundaries for them in the ponies' name if I dont want to c+h with anything specific!
-I kin Wanderer, Lohen, and L ! The only ships ill c+h with from those three are Kazuscara,Sethoscara, Illuhen, and Lawlight! I'll c+h with other characters but pls don't think I ship it.
-                ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+I kin Wanderer, Lohen, and L ! The only ships ill c+h with from those three are Kazuscara,Sethoscara, Illuhen, and       Lawlight! I'll c+h with other characters but pls don't think I ship it.
+              
 <img width="736" height="414" alt="4a0c2071c5b543ccaa2b79d071470c8b" src="https://github.com/user-attachments/assets/250f79ab-5ab5-489e-a137-b06bc220ed98" />
 
 
