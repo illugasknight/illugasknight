@@ -1,5 +1,5 @@
 ## Hi! I usually don't talk so please don't expect me to :) I encourage c+h but I do have boundaries for them in the ponies' name if I dont want to c+h with anything specific!
-I kin Wanderer, Lohen, and L ! The only ships ill c+h with from those three are Kazuscara, Illuhen, and Lawlight! I'll c+h with other characters but pls don't think I ship it.
+I kin Wanderer, Lohen, and L ! The only ships ill c+h with from those three are Kazuscara,Sethoscara, Illuhen, and Lawlight! I'll c+h with other characters but pls don't think I ship it.
 
 <!--
 **illugasknight/illugasknight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
