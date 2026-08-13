@@ -5,6 +5,8 @@ I kin Wanderer, Lohen, and L ! The only ships ill c+h with from those three are 
 
 I usually am wanderer/illuga/lohen !! 
 
+https://discord.com/users/1163913849985044572
+
 <!--
 **illugasknight/illugasknight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
